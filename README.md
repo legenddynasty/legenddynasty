@@ -10,11 +10,8 @@ O-Series Public Link : >>>> https://github.com/legenddynasty/O-Series/blob/main/
 - 🚢 Play Starblast.io and have fun with my ships!
 - 📖 Come to my discord channel and help O-series grow just for fun! 
 - 
-Discord Link:     >>>> https://discord.gg/xfEfSWVkkr <<<<
-- - - - If you are interested, come and contact me. - - - - 
+My Florr.io community Discord link:     >>>> https://discord.gg/hbU32atS2M <<<<
+- - - - If you are interested, come and DM me. - - - - 
 
 
-<!---
-legenddynasty/legenddynasty is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
