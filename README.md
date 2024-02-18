@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Paindemic
 - 👀 I'm a starblast ship creater and O-series host!
-- 🌱 I’m currently learning how to make more ships (like Finalizer's fun Haus).
+- 🌱 I’m currently learning hwo to get good at florr.io (trust me it's addictive as hell)
 - 💞️ I’m looking to collaborate with more people on my freshly created O-series.
 
 O-Series Public Link : >>>> https://github.com/legenddynasty/O-Series/blob/main/O-series%20v1.0 <<<<
